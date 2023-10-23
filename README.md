@@ -8,5 +8,6 @@ Fitted to Croc
 ![image](https://github.com/bigcrimping/crocatinny/assets/74270551/61045559-58ea-444b-bf3b-11ae75d1b75f)
 
 With laser
-![Uploading image.png…]()
+![image](https://github.com/bigcrimping/crocatinny/assets/74270551/03bc657d-f7aa-4700-b603-659e09aa6af5)
+
 
